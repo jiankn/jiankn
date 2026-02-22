@@ -44,3 +44,4 @@
 > **Stop guessing which lifetime deals are worth buying. Use data.**
 > 
 > 👉 [Get access to the full database →](https://ltdatlas.com/pricing)
+.
